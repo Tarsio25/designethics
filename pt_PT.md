@@ -72,9 +72,8 @@ O Facebook atingiu recentemente os dois biliões de utilizadores. 1% desses util
 Eric Meyer defende que quando chamamos a algo de ‘caso extremo’, estamos na realidade a definir os limites da nossa intervenção, a definir com o que nos preocupamos.
 
 “When you call something an edge case, you’re really just defining the limits of what you care about.” — Eric Meyer
-These are the trans people who get caught on the edges of “real names” projects. These are the single moms who get caught on the edges of “both parents must sign” permission slips. These are the elderly immigrants who show up to vote and can’t get ballots in their native tongues.
 
-They are not edge cases. They are human beings, and we owe them our best work.
+As pessoas não são 'edge cases'. São seres humanos e nós devemos-lhes o nosso melhor trabalho.
 
 
 
